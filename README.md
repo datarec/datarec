@@ -1,1 +1,1 @@
-nigga nigga nigga 
+nigger nigger nigger 
